@@ -3,7 +3,7 @@ ISYS-463
 
 Taught by Brenda L.F. Mak                                               
 ![alt tag](http://online.sfsu.edu/bmak/Brenda_Mak.jpg) 
-@ ![alt tag](https://ib.berkeley.edu/labs/stillman/SFSU_LogoH2.jpg)
+@ ![alt tag](http://www.american-school-search.com/images/logo/san-francisco-state-university.gif)
 
 
 
